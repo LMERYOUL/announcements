@@ -1,1 +1,1 @@
-The EldoZone Bot v1.0 is coming
+The EldoZone Bot v1.0 is coming test test
