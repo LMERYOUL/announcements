@@ -1,1 +1,1 @@
-The EldoZone Bot v1.0 is coming 
+ha li mcha maja
