@@ -1,1 +1,1 @@
-ha li mcha maja
+Welcome To EldoZone v1.0 (Beta)
